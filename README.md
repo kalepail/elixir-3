@@ -14,3 +14,6 @@ https://tinyanvil.com/elixir/demo
 
 ## README
 https://elixir-3.readme.io
+
+---
+[Pay Me](https://cash.me/$tyvdh). Cause you're not a mooch.
